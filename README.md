@@ -15,6 +15,7 @@
 - Currently a senior (in high school)
 - Very dedicated house cook (baking, cooking, basically everything)
 - Active gamer, plays **Genshin Impact**, **The First Descendant**, **Resident Evil 4**, **The Crew Motorfest** , and others...
+- Graphic Designer (PFPs, Server Icons, etc.)
 - And of course, an ambitious developer, attempting to learn as much as possible.
 
 
